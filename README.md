@@ -1,4 +1,4 @@
-# 👋 Hi, I'm Ken Thomas
+# 👋 Hi, I'm Kenyata Thomas
 
 IT Support Specialist | Help Desk | Systems Troubleshooting | Cloud Labs
 
